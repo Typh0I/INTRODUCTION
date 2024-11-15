@@ -17,5 +17,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠛⠛⠛⠛⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 𓊆13+𓊇 | Minor !! | Artist/Animator | Canadian | 🍁 :
 ✦•┈๑⋅⋯ ⋯⋅๑┈•✦⿻
+
 Heya! I’m Gumi Flower, but you can simply refer to me as Gumi! I’m a Canadian Digital (& Traditional) Artist. I love art, with a passion, I don’t mind people from the LGBTQ+ & furries, just don’t make it a problem. ( ˘ω˘ )
 ⠀⠀⠀⠀⠀⠀⠀⠀
