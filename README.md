@@ -9,3 +9,5 @@
 
 
   ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ʟᴇᴀʀɴ ᴍᴏʀᴇ ᴀʙᴏᴜᴛ ᴍᴇ, ɢᴏ ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴛʜᴇ ʟɪɴᴋꜱ ᴏɴ ᴍʏ ᴘʀᴏꜰɪʟᴇ !
+
+   ![@yeonda187676 on X](https://github.com/user-attachments/assets/b7197d6f-29cf-4599-8f4d-772cbaabcd06)
