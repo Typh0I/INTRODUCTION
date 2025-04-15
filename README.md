@@ -1,6 +1,7 @@
 ![image](https://github.com/user-attachments/assets/1a67fc87-1967-4d44-bc4e-8f53fc0532c3)
 
 
+![image](https://github.com/user-attachments/assets/18e000b4-ad75-4a05-986c-196c82e21c5a)
 
 ⠀⠀
                         ⋆｡𖦹°⭒˚｡⋆ 𓊆14+ : if under DNI 𓊇 | !! | ᴀʀᴛɪꜱᴛ/ᴀɴɪᴍᴀᴛᴏʀ | ᴄᴀɴᴀᴅɪᴀɴ | 🍁 : ᴀɴʏ ᴘʀᴏɴᴏᴜɴꜱ 
@@ -14,5 +15,6 @@
 
   ɪꜰ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ ʟᴇᴀʀɴ ᴍᴏʀᴇ ᴀʙᴏᴜᴛ ᴍᴇ, ɢᴏ ᴄʜᴇᴄᴋ ᴏᴜᴛ ᴛʜᴇ ʟɪɴᴋꜱ ᴏɴ ᴍʏ ᴘʀᴏꜰɪʟᴇ !
   
+![image](https://github.com/user-attachments/assets/fce368c8-3fe8-4e36-b192-87c78d1425e0)
 
 ![image](https://github.com/user-attachments/assets/180f5061-7fb6-4c2f-87b8-204004695405)
